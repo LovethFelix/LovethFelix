@@ -1,7 +1,7 @@
-- 👋 Hi, I’m Loveth (ubuh) Felix
+- 👋 Hi, I’m Loveth (Ubuh) Felix
 - 👀 I’m interested in learning new and challenging things.
 - 🌱 I’m currently working on some projects...
-- 💞️ I’m looking to collaborate with like minds.
+- 💞️ I’m looking to collaborate with like-minded people.
 - 📫 How to reach me ...
 - send me a message via linkdIn
   
